@@ -1,0 +1,1 @@
+# Fuyuri0621.github.io
